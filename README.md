@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @cleanuponile3
 - 👀 I’m interested in making money...
 - 🌱 I’m currently learning fuillstack development...
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me true, my email albetroscriuse212yahoo.com 
+- 💞️ I’m looking to collaborate on a money making project
+- 📫 How to reach me true, my email albetroscriuse21@yahoo.com 
 - 
 - ⚡ Fun fact: someone said i look like like a fish;
 
